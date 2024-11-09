@@ -1,17 +1,23 @@
 　ﾠ　ﾠ　　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠꔫWelcome to my Github!!ꔫ
 
 
-ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　![tumblr_87b89a4db1446927d65fc978b7d4ded2_787962fa_500](https://github.com/user-attachments/assets/be27a375-437e-410c-8769-70ba191f566b)
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　　 　ﾠ　![](https://64.media.tumblr.com/155a50ca67c288d66a5af74c7fdcf730/71766e6f6e45d61d-2c/s400x600/2353334072b72a748643b743401ac1750b6b455c.pnj)
 
 
-
-![tumblr_96f526a84ec3b3472249ad68de7b0482_90b1891f_1280](https://github.com/user-attachments/assets/7565e4ac-21ed-4b12-b518-1a3ddd1a8d2c)
+ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　![](https://64.media.tumblr.com/d17393bba4529d28d80ca13341273297/42d967431eb32612-03/s400x600/3748cf21edfbdb97ce9924d274062e6f04031169.gifv)
 
 　ﾠ　　ﾠ　　　I do not like Homophobics,Transphobics,Muslismphobics,Pedos,Weirdos, Keep in mind I am a mother![heh]
 
-![tumblr_7ba2da30f5ad1cc58d6eee0c600541c3_eb6887e1_1280](https://github.com/user-attachments/assets/39417a94-bf68-400d-820d-8e8ad9fe5518)
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　　 　ﾠ　![](https://64.media.tumblr.com/155a50ca67c288d66a5af74c7fdcf730/71766e6f6e45d61d-2c/s400x600/2353334072b72a748643b743401ac1750b6b455c.pnj)
 
+ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　ﾠ　![](https://64.media.tumblr.com/42500b5294c3781fd799dbcbcd023150/71766e6f6e45d61d-56/s400x600/abc61bb0207bdb3acf9057264533dae5fc6e5a32.pnj)
 
-ﾠ　 　ﾠ　ﾠ　 　ﾠ　　ﾠ　ﾠﾠ　![tumblr_8313028e941ce6575a314aece9884efe_62383346_500](https://github.com/user-attachments/assets/4a88001d-7973-42d3-807d-1f7f46161560)
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　　 　ﾠ　![](https://64.media.tumblr.com/155a50ca67c288d66a5af74c7fdcf730/71766e6f6e45d61d-2c/s400x600/2353334072b72a748643b743401ac1750b6b455c.pnj)
+
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　　 　ﾠ　ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　Wide awake
+
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　ﾠ　　 　ﾠ　![](https://64.media.tumblr.com/a03e6f0c5b16aad0f5138e9ab1195ddd/71766e6f6e45d61d-4d/s400x600/3f244e808069b5743322af924481559b513a7487.pnj)
+
+ﾠ　 　ﾠ　ﾠ　 　ﾠ　　ﾠ　ﾠﾠ　ﾠ　 　　 ![](https://64.media.tumblr.com/a7a7e76857ce2a8468bc08f3a6c34c50/71766e6f6e45d61d-fe/s100x200/10dc1c36bc1e964f4b33454b0f981e211e2eef93.pnj)![](https://64.media.tumblr.com/659f180abe0f7caf0c9244c8a5df9d0b/71766e6f6e45d61d-6f/s100x200/9910bda3e21d9c73a3da9d54f188012c8c5908e0.gifv)![](https://64.media.tumblr.com/500762cb24c012104bd06043614b48fc/71766e6f6e45d61d-7a/s100x200/b20dfe845f8aee548fcf8b7d5c7228c1f712ab76.pnj)
 
 　ﾠ　ﾠ![tumblr_09437e658001106721bf479af9cfec23_cf132df2_250](https://github.com/user-attachments/assets/00226e18-2fd8-4874-bff0-747c9839ecb6)ꔫ~Gwen~ꔫ
